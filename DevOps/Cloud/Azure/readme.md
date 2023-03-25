@@ -1,0 +1,1 @@
+Microsoft's cloud platform
